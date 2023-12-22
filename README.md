@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abdulkarims582@gmail.com**
 
-- 📄 Know about my experiences [https://www.cakeresume.com/me/abdulkarim-shaikh])
+- 📄 Know about my experiences [[https://www.cakeresume.com/me/abdulkarim-shaikh](https://www.cakeresume.com/resume-editor/abdulkarim-shaikh/edit)])
 
 - ⚡ Fun fact **I' am a self-learner who wants to acquire new knowledge and skills**
 
